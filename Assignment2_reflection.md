@@ -1,0 +1,7 @@
+#Assignment 2: Seeing the Unseen (Reflection)#
+
+I realized the most is how most of the things that go unnoticed to me in these public environments are the most obvious things, and are hidden in plain sight. The city is constantly changing which is what makes it difficult to notice these small changes, especially when we acclimate ourselves to(our brains) to this constant change. All these elements that were going unnoticed were telling me stories of the time, community and the interactions in these spaces.
+
+When thinking of the posters, I thought it was quite ironic, considering that posters are mainly intended to grab attention. The collaging of them makes them redundant, and therefore their purpose is altered. They are now seen as art and a symbol of community. While the mini-gardens are small and unofficial. Nobody requires them to exist, but it gives people a sense of community, responsibility and appreciation.
+
+I tend to work with topics that evoke emotions of warmth, nostalgia, or curiosity in people. So this ideation process really aligned my creative ideas where I tried to analyze the way others interact with their public environments. Recently inspired by the talk about “The making of NewYork Nico’s book” at our University Centre, I thought a zine or a flip book would allow me to preserve these fleeting and changing moments of the hustle-bustle city. Especially in a way that moves away from a digital platform in these highly online times.
