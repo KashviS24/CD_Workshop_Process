@@ -1,4 +1,4 @@
-#Assignment 3: 50 Ways to See Reflection
+#Assignment 3: 50 Ways to See (Reflection)
 
 “Fish” has been a recurring motif in my life, showing up in ways both personal and cultural. My earliest connection with fish comes from the Indian children’s book "At Least a Fish", a story that resonated with my childhood longing for a pet. When I was finally gifted a fish bowl at nine, my excitement quickly faded into disappointment—it wasn’t the kind of pet I had hoped for. Yet, fish became an unexpected constant in my upbringing, moving from bowls to tanks to our garden pond, they had been a constant for about 6 years of my life.
 This exploration of fish as an object allowed me to tap into both memory and imagination. My interpretations varied from deeply personal—such as my cat’s ironic nickname, “Fish”—to cultural connections rooted in my coastal hometown in India, where the fish curry and fry are a must try. I am a Pisces zodiac sign and further cement the significance of the symbolisms of fish in my life.
